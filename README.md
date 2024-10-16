@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: via my student email (savasebastian24@stud.ase.ro) or my personal email (sebastian_sava@icloud.com)
 - 😄 Pronouns: he / him
 - ⚡ Fun fact: I love food and dogs.
--->
