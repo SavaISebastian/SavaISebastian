@@ -4,6 +4,5 @@
 - 👯 I’m looking to collaborate on projects. 
 - 🤔 I’m looking for help with anything that will give me experience.
 - 💬 Ask me about how am I doing!
-- 📫 How to reach me: via my student email (savasebastian24@stud.ase.ro) 
 - 😄 Pronouns: he / him
 - ⚡ Fun fact: I love food and dogs.
